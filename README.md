@@ -12,8 +12,6 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/asebagutierrezm/](https://www.linkedin.com/in/asebagutierrezm/)
 
-- ⚡ Bonus fact: I spent 2 years working remotely while traveling the world, exploring over 30 incredible cities in nearly 10 countries!
-
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
